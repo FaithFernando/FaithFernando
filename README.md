@@ -1,4 +1,4 @@
-# Hi, I'm Faith Fernando 👋
+# Hi, I'm Faith Fernando😎
 
 ### Data Analyst | Applied Statistics | Data Science & AI Enthusiast
 
